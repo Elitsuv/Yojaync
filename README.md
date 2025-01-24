@@ -1,2 +1,2 @@
-# Kriko
-a handcricket bot who is pro.
+# Yojaync
+coming this april 25
